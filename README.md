@@ -1,4 +1,6 @@
-## Hi there 👋
+## hi, i'm the wallflower<3 
+i enjoy the fiber arts and literature and my career goal is to pursue studies until I earn a doctorate, with a particular focus on cybersecurity.
+
 
 <!--
 **bambi-bit/bambi-bit** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
